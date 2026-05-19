@@ -1,4 +1,4 @@
-# 
+# secure GIMP para PC complementos es el mejor GIMP para PC complementos con relleno consciente del contenido y documentos multipágina. Seguro, confiable y optimizado para el máximo
 
 
 
